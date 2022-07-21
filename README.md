@@ -1,0 +1,1 @@
+## Bilgisayarlı Görü Konusundaki Notlar
